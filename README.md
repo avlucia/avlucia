@@ -1,6 +1,6 @@
 - 👋 Hola soy Lucía
 - 👀 Estoy interesada en hacer páginas web 
-- 🌱 Estoy aprendiendo continuamentnte del mundo digital
+- 🌱 Estoy aprendiendo continuamente del mundo digital
 - 💞️ Estoy deseando colaborar con quién sea que me enseñe
 - 📫 Para encontrarme tienes mi correo avlucialeiva@gmail.com
 - ⚡ Fun fact: tengo un perro demasiado loco
